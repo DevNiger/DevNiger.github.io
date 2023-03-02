@@ -1,1 +1,2 @@
-# DevNiger.github.io
+# SORRY FOR WASTING YOUR TIME😂 
+# IS NOT MYFAULT YOUR JOBLESS😂😂😂
